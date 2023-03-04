@@ -1,1 +1,1 @@
-# EnderMC-Network.mooo.com
+# EDMC-network.github.io
